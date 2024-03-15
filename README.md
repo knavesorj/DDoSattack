@@ -19,6 +19,6 @@
 ---
 
 ## KEY 💀
-[KEY](https://t.me/aretuzaarsiv/365)
+[KEY](https://t.me/aretuzaarsiv/369)
 
 ---
