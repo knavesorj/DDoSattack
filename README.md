@@ -22,3 +22,5 @@
 [KEY](https://t.me/aretuzaarsiv/369)
 
 ---
+
+## qTÜM ARAÇ EĞİTİM AMAÇLIDIR. KÖTÜYE KULLANIM DURUMUNDA SORUMLULUK REDDİ 
